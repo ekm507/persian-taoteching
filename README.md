@@ -20,6 +20,10 @@
 
 [و این یکی](http://classics.mit.edu/Lao/taote.mb.txt)
 
+[و این](https://www.taoistic.com/taoteching-laotzu/taoteching-11.htm)
+
+[و این](https://www.wussu.com/laotzu/laotzu11.html)
+
 
 ## نکات
 
